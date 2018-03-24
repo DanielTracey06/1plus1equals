@@ -2,4 +2,4 @@
 
 Hi people
 
-Im game, puzzle game
+I'm game, puzzle game
